@@ -1,4 +1,4 @@
-# ⚡ Analyste SOC / Sécurité Réseau | Profil Hybride Télécom & Cyber
+Analyste SOC / Sécurité Réseau | Profil Hybride Télécom & Cyber
 
 Ancien conducteur de travaux radio et technicien réseau avec plus de 12 ans d'expérience sur le terrain (déploiement d'infrastructures complexes, équipements Ericsson/nokia, technologies 3G/4G/5G). 
 
